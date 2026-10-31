@@ -3,7 +3,7 @@ Digital Arts Portfolio | BSIT
 
 ## Links
 - [Google Sites Portfolio](https://sites.google.com/view/aprilshreck/home?authuser=0)
-- [CV](https://drive.google.com/file/d/1kUVJBPeo-5Zrk_ko6xGEz2KR9duY6oaB/view?usp=drive_link)
+- [CV](https://drive.google.com/file/d/1MR5yfrRypA5YJEpwkhyMbEROCATgXw8D/view?usp=drive_link)
 
 ## Animations
 
